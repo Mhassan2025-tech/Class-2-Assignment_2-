@@ -1,1 +1,1 @@
-# Class-2-Assignment_2-
+# AI & Biotechnology/Bioinformatics_Internship_Assignment_02-
